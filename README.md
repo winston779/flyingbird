@@ -1,6 +1,6 @@
 # 飞鸟flyingbird机场官网地址
 
-最新地址：[aff01.fyb-aff01.com](https://www.fyb-aff.com/auth/register?code=7Mkp)
+最新地址：[flyingbird.cc](https://www.fyb-aff.com/auth/register?code=7Mkp)
 
 ## 简介
 
