@@ -1,6 +1,6 @@
 # 飞鸟flyingbird机场官网地址
 
-最新地址：[flyingbird.pro](https://fbla02.flyingbird.lat/auth/register?code=OzOF)
+最新地址：[flyingbird.cc](https://fbla02.flyingbird.lat/auth/register?code=OzOF)
 
 ## 简介
 
